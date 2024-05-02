@@ -1,1 +1,0 @@
-# jbtechnix.github.io
